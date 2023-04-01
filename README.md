@@ -1,1 +1,0 @@
-# Aisyah-Putri-Utami
